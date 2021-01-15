@@ -1,0 +1,2 @@
+# hope-for-resolution
+Dokumentasi resolusi ini mengingatkan kepada saya agar lebih bisa memanfaatkan waktu dengan sebaik-baiknya. Karena waktu merupakan bagian penting dalam kehidupan. Seseorang mengatakan: "Ketika kamu memaksimalkan waktu dengan benar di masa mudamu, masa tuamu tidak akan bekerja lebih keras seperti masa mudamu dulu. Sebaliknya, jika kamu tidak pernah menghargai waktu di masa mudamu, kamu akan bekerja ekstra lebih keras di masa tuamu, untuk membayar waktu yang telah kau sia-siakan di masa mudamu dulu."
